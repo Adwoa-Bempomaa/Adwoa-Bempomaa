@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Adwoa
 - 👀 I’m interested in AI and Personal growth
 - 🌱 I’m a final year student, BSc Artificial Intelligence
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I will be sharing my journey here.
 - 📫 How to reach me ...
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Weird fact, I want to be everything and more
